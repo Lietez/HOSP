@@ -10,7 +10,6 @@
 | UFOP | Vixenous | hospitalized |
 | GOST | CaptRomero | Surgery |
 | METL | HerodotusFrost | Family medical ermgency |
-| XDCA | Tepoztecatl |Medical Emergency |
 <br>
 <br>
 
