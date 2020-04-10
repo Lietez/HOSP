@@ -9,7 +9,6 @@
 | RIPH | JWolf | Loss in the family |
 | UFOP | Vixenous | hospitalized |
 | METL | HerodotusFrost | Family medical ermgency |
-| METL | Kontra | Hospitalized |
 <br>
 <br>
 
