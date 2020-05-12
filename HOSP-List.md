@@ -10,7 +10,6 @@
 | UFOP | Vixenous | hospitalized |
 | TREK | Bakermono1and2 | Loss in the family |
 | RPKD | docslayer | medical issue |
-| XDCA | Ismar1971 | Hospitalized |
 <br>
 <br>
 
