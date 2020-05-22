@@ -1,14 +1,8 @@
 ### DO NOT ATTACK THESE PLAYERS DUE TO MEDICAL REASONS
 ---
 
-| Tags | User       | Reason |
-|:------|:---------- |:-------|
-| QNOS | KatieRose | medical procedure, will be out of game |
-| RISE | Ranger82nd | in hospital still, accidentally removed instead of similar named player |
-| QNOS | ElTaino787DILLIGAF | Family medical emergency |
-| RIPH | JWolf | Loss in the family |
-| UFOP | Vixenous | hospitalized |
-| RPKD | docslayer | medical issue |
+
+| KILZ | has declared there is no quarter for those seeking medical relief * all are subject to pillage from KILZ |
 <br>
 <br>
 
