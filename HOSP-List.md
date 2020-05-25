@@ -1,8 +1,10 @@
 ### DO NOT ATTACK THESE PLAYERS DUE TO MEDICAL REASONS
 ---
-
-
-| KILZ | has declared there is no quarter for those seeking medical relief * all are subject to pillage from KILZ |
+| QNOS | ElTaino787DILLIGAF | Family medical emergency |
+| RIPH | JWolf | Loss in the family |
+| UFOP | Vixenous | hospitalized |
+| TREK | Bakermono1and2 | Loss in the family |
+| FE   | Plumbline | Away 3 days for medical reasons |
 <br>
 <br>
 
