@@ -4,7 +4,6 @@
 | RIPH | JWolf | Loss in the family |
 | UFOP | Vixenous | hospitalized |
 | TREK | Bakermono1and2 | Loss in the family |
-| FE   | Plumbline | Away 3 days for medical reasons |
 <br>
 <br>
 
