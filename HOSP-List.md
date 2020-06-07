@@ -3,7 +3,6 @@
 | QNOS | ElTaino787DILLIGAF | Family medical emergency |
 | RIPH | JWolf | Loss in the family |
 | UFOP | Vixenous | hospitalized |
-| TREK | Bakermono1and2 | Loss in the family |
 <br>
 <br>
 
