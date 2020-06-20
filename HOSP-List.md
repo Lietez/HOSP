@@ -4,6 +4,7 @@
 | RIPH | JWolf | Loss in the family |
 | REGU | USSPiper | Recently Passed away | 
 | LiTH | Gimedeath | off due to medical reasons for a few weeks |
+| UFoP | ragerrick | admitted into hospital |
 <br>
 <br>
 
