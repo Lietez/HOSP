@@ -3,7 +3,6 @@
 | RIPH | JWolf | Loss in the family |
 | REGU | USSPiper | Recently Passed away | 
 | LiTH | Gimedeath | off due to medical reasons for a few weeks |
-| UFoP | ragerrick | admitted into hospital |
 | ÔŃÊ | LetoAtreides | brother in law passed away |
 <br>
 <br>
