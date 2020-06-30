@@ -1,6 +1,5 @@
 ### DO NOT ATTACK THESE PLAYERS DUE TO MEDICAL REASONS
 ---
-| QNOS | ElTaino787DILLIGAF | Family medical emergency |
 | RIPH | JWolf | Loss in the family |
 | REGU | USSPiper | Recently Passed away | 
 | LiTH | Gimedeath | off due to medical reasons for a few weeks |
