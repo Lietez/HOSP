@@ -2,7 +2,6 @@
 ---
 | REGU | USSPiper | Recently Passed away | 
 | LiTH | Gimedeath | off due to medical reasons for a few weeks |
-| ONE  | AlabamaBulldog | Death in the family |
 | WAT  | GodFather87 | In the hospital |
 <br>
 <br>
