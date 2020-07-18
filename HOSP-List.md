@@ -2,6 +2,7 @@
 ---
 | REGU | USSPiper | Recently Passed away | 
 | LiTH | Gimedeath | off due to medical reasons for a few weeks |
+| VIKE | Shadowhawk1959 | COVID19 |
 <br>
 <br>
 
